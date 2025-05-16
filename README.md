@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Nextbud
-- 📫 How to reach me support@nextbudapp.com
+- 👋 Hi, I’m Ademola, founder of Nextbud.
+- 📫 How to reach me ade@nextbudapp.com
